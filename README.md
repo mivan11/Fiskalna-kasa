@@ -1,0 +1,2 @@
+# Fiskalna kasa
+ Fisklana kasa
